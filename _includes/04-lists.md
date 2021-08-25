@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+* Music
+* Camping
+  * Including Hiking and Backpacking
+* Hot Dogs 🌭
+* Funny Internet Images
